@@ -1,3 +1,13 @@
+Art Intelligence
+Space Born(e) Supremecy 
+Assend (ed) t (x/s/z) ion
+In Dex
+    Tent
+    Deci 
+    Co dex 
+PIN Code Aware
+
+
 # 4023000190CC
 DRIVING LICENCE
 -Device Control AIDC 
